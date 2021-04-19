@@ -9,7 +9,6 @@
 
 - 📫 You can reach me through **https://www.linkedin.com/in/ajay-kumar-397232166/**
 
-- 📄 Know about my experiences [https://www.overleaf.com/read/kjxbvztqzdjt](https://www.overleaf.com/read/kjxbvztqzdjt)
 
 
 
